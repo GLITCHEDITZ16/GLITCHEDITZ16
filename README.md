@@ -7,4 +7,4 @@
 
 🔥 Country - India
 
-![standard (8)](https://user-images.githubusercontent.com/77874591/110103232-b432e700-7dcb-11eb-995c-2231fc7d2a53.gif)
+![standard (8)](https://cdn.discordapp.com/attachments/820693769526837287/827786247450918952/standard.gif)
